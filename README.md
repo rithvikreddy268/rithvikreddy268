@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... projects with direct clients 
 - 📫 How to reach me ... linkedin 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... good places makes me travel 
 
 <!---
 rithvikreddy268/rithvikreddy268 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
